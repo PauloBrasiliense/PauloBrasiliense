@@ -11,5 +11,5 @@ Me chamo **Paulo Brasiliense** e atuo como Software Developer.
 - 📌 Inteligência Artificial
   
 
- Welcome 🙂 
+ Bem-vindo ao meu portfólio 🙂 
 
